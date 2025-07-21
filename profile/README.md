@@ -34,3 +34,6 @@ This project is open-source and community-driven. Feel free to fork, clone, star
 👉 **Let’s Colour the World Together!**
 
 Join us by starring ⭐ this repo, raising issues 🗂️, or submitting your pull requests 🤝. Spread the word, share your books, and inspire others to unleash their inner artist — one page at a time!
+
+#KDPColoringPages #ColoringBookDesigns #KDPResources #ColoringBook #SelfPublishing #ColoringPages #ColouringPages #ColouringBookArt #AmazonKDP #KDP #AmazonKindle #CreativeCommons #OpenSourceDesigns #KidsColoringPages #AdultColoringPages #PrintableColoringPages #Drawing #DrawingIdeas #Coloring #PassiveIncome #DesignCommunity #ColouringFun #FreeColoringPages 
+
